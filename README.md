@@ -24,6 +24,10 @@ I love all things data — I just can't get enough of it! 😘 I love figuring o
 P.S. I'm also a fan of animated stories!
 
 # Let's Connect 🚀
+- [Twitter](https://twitter.com/Doyin__dodo)
+- [LinkedIn Profile](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile)
+- [Medium](https://medium.com/@ayodejikenny7)
+- Email - ayodejikenny7@gmail.com
 
 
       
